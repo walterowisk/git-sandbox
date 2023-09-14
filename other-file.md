@@ -7,7 +7,7 @@ salaminho
 | nós dois na horizontal
 
 
-##### "Não existe trabalho ruim, ruim é ter que trabahar" - MADRUGA, Seu.
+##### "Não existe trabalho ruim, ruim é ter que trabalhar" - MADRUGA, Seu.
 
 
 `{"só parte pra violência que não se garante na sinuca" - Agostinho Carrara}`
@@ -18,3 +18,4 @@ nada acontecefeijoada
 
 vasco
 
+torresmo
