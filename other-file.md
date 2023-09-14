@@ -15,3 +15,5 @@ nada acontecefeijoada
 🎶️🎶️ toda vez que o seu namorado sai vc vai ver um outro rapaz
 
 vasco
+
+ooooooooh
