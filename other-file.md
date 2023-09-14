@@ -1,14 +1,12 @@
 vrau
 
-`pipipi popopo`
-
 salaminho
 
 | nós dois na horizontal
 
 
-##### "Não existe trabalho ruim, ruim é ter que trabalhar" - MADRUGA, Seu.
 
+`pipipi popopo`
 
 `{"só parte pra violência que não se garante na sinuca" - Agostinho Carrara}`
 
