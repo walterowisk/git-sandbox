@@ -11,3 +11,5 @@ salaminho
 ##### "Não existe trabalho ruim, ruim é ter que trabahar" - MADRUGA, Seu.
 
 nada acontecefeijoada
+
+🎶️🎶️ toda vez que o seu namorado sai vc vai ver um outro rapaz
